@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Vishally
+- 👀 I’m interested in job of data scientist
+- 🌱 I’m currently learning Master of Data Science
+- 💞️ I’m looking to collaborate on company which will lead me a platform to give my potential performance
+- 📫 How to reach me u can call me @ 7708543983 and mail me @ vishally.salem@gmail.com
